@@ -1,5 +1,5 @@
 
-## My shop keyboard-hoarders.com and keyboardhoarders.etsy.com
+## My shop keyboard-hoarders.com and keyboardhoarders.etsy.com -
 
 ![lily](https://github.com/user-attachments/assets/41c643e3-44f1-4863-9274-2a0181e748f5)
 
